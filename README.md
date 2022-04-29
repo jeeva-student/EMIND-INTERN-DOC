@@ -1,1 +1,0 @@
-# EMIND-INTERN-DOC
